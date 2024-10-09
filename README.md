@@ -1,0 +1,1 @@
+# Technological-solution-for-safety-disposal-of-menstrual-waste
